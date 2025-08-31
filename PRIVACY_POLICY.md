@@ -57,6 +57,6 @@ We may update this Privacy Policy from time to time. Changes will be posted with
 ## 7. Contact Us
 
 If you have any questions about this Privacy Policy, please contact:
-**Email:** [your-email@example.com]
+**Email:** [dshanjeevanie@gmail.com]
 
 ---
